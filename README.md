@@ -1,1 +1,1 @@
-# Ne-gyvyb-s-draudimo-rinka-Lietuvoje-2023-m.
+# Ne gyvybės draudimo rinka Lietuvoje  2023m.
